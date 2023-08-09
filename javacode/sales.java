@@ -1,1 +1,1 @@
-ssale files
+sale files
